@@ -1,2 +1,4 @@
 # hello-world-
 git hub tutorial on creating new repositories and a host of other git related commands 
+
+Bathe in the ocean. Watch as the stars fall one by one from the black into the blue. Lighting up the reefs below; spiraling in currents; they leap from one cliff to another; waking the fish.A glorious revolution of light, spiraling deeper and deeper into the depths. A shining diamond falls ever faster, and fades, until all is black again. The wet hair dangles and reached. The face, round like the moon ceased. Be aware, though. The smallest movement will create a million tiny dots of electric blue. The shallowest sigh, a streak of purple trailed by gray star dust across the sky. So stroke the world gently with your heart. A simple feeling that lasts forever will unfold, and refold. Blue. Purple. Black. Blue. Purlple. Black. 
